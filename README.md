@@ -9,3 +9,7 @@ apt-get update -y; apt-get upgrade -y; wget https://github.com/JeanRocha91x/Gera
 
 # —(••÷[ Imagens ]÷••)—
 ![Screenshot_15](https://user-images.githubusercontent.com/105602625/190878556-57c3eb36-c562-4961-b22b-4ff373e22513.jpg)
+![Screenshot_14](https://user-images.githubusercontent.com/105602625/190879202-8909c544-86b6-498f-b07d-edf19413b3e6.jpg)
+
+# 【｡_｡】 V̷P̷N̷ ̷M̷O̷N̷E̷Y̷ 【｡_｡】
+https://kiwify.app/NKl55g5
